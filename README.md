@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @N-i-k-k-i
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning coding
+- 💞️ I’m looking to collaborate on nothing 
+- 📫 DM me on discord ( Nikki <3#2050 )
